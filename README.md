@@ -1,1 +1,0 @@
-# Baljyoti-NGO
